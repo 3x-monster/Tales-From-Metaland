@@ -1,0 +1,13 @@
+# Monster origins
+
+This is a tale handed down the generations, shrouded in mystery. Long ago, in the darkness, there was a great being called **Atlas**. Out of boredom, he recited a great incantation, and from his body was born the Titans known as **Barr** and **Sith**. As they appeared in the world, Atlas vanished into the darkness.
+
+From the beginning these two brothers of legendary might stood in opposition, each turning their efforts to the destruction of the other, for the victor stood to gain mastery over all. Their war stretched over millennia, each thunderous strike blasting through the universe, creating realms and races in their wake, until one such realm rose against them.
+
+**Grom** had been the first realm born from the battle, and the first race that emerged survived the chaos and learned to thrive in the intervals between clashes. They tired of the war, and grew vengeful, throwing all their efforts into finding some trace of Atlas that might be turned to the Titan's destruction. Finally, in the sea of the gods, the people found a stone monument engraved with a grand incantation they believed would destroy the Titans. Hastily they recited the spell, but to their dismay, it summoned something else out of the nothingness: monsters.
+
+Thousands of monsters poured forth; merciless, strong, and bestial. They descended upon Barr and Sith in a feeding frenzy, and for the first time in millennia, the Titans turned from their war. Waving their huge fists, they smashed the bodies of the monsters one after another, but the monsters that had eaten of Titan flesh would not stay dead, but rose again to continue their dark feast.
+
+Long did the Titans fight, until finally Sith fell, and the monsters swarmed over his body. Barr wasted not a moment to hesitation, but tore out the right eye of Sith, then his own left eye. With his dying breath he finished the incantation to create the artifact **Andavos**, the sole hope of sealing away the monsters. The humans at first celebrated to see the Titans fall, then rushed to arms as the monsters turned on them. The first human-monster war had begun.
+
+The war burned for years. Countless heroes and monsters died, until one day, Andavos was found by a group of heroes in the **Valley of Chaos**. The remaining monsters were sealed away, but the humans did not understand well enough, for in the realm of Void, the monsters were not stationary. They continued to fight, evolve, and devour each other. Each devouring is accompanied by pain of the soul, but the pain brings wisdom, and the monsters evolved into many different races. The monsters flourished in a thousand forms, yet in all two things remained: an endless hunger, and the desire for revenge......
